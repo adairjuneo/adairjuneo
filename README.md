@@ -1,6 +1,6 @@
 Analyst Programmer, for the "trust me bro" group, AI Engineer some times.\
 Learning and improve my skills for Product Engineering.\
-Text me on Discord#635490524698116100 or IG@adairjuneo\
+Text me on Discord#p0rt1n4r1 or IG@adairjuneo\
 See ya 😘
 
 _Woking off the books on [highlights-app](https://highlights-app.dev-juneo.com)_\
