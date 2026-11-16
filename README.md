@@ -1,4 +1,4 @@
-Analyst Programmer, for the "trust me bro" group, AI Engineer some times.\
+Analyst Programmer, for the "trust me bro" group, Software Engineer some times.\
 Learning and improve my skills for Product Engineering.\
 Text me on Discord#p0rt1n4r1 or IG@adairjuneo\
 See ya 😘
